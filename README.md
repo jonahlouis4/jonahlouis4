@@ -8,9 +8,13 @@ Greetings, I'm Jonah --- a full-stack web developer volunteering for [Isha Found
 ### When I'm not coding, I...
 
 👉 Practice and deepen my experience in Yoga🧘
+
 👉 Spend time helping the community 🙏
+
 👉 Love to meet new people 👋
+
 👉 Listen to music and jam to the good tunes 🎵
+
 👉 Play video games on my custom built PC 🎮 
 
 ---
