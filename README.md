@@ -1,7 +1,5 @@
 # Jonah Louis --- @jonahlouis4
 
-----
-
 Life is good 💖
 
 ---
